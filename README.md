@@ -1,1 +1,1 @@
-# myDogMaui
+# myDogMaui are experiences with my dog
